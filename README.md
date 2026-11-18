@@ -1,1 +1,2 @@
 # SWIMMING POOL CLEANING AND DISINFECTION EFFECTIVENESS OF JKUAT SWIMMING POOL 
+Swimming pools promote fitness but can spread bacteria from bathers’ skin, sweat, saliva and faecal accidents (Keuten et al., 2012; Hassanein et al., 2023).Disinfectants like chlorine do not guarantee all microbes are eliminated (Lamere et al., 2023).Biofilms on edges, walls and stairs shield bacteria and may carry resistance genes.Little is known about bacteria in JKUAT pools, which serve students, children and the community.
